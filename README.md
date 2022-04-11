@@ -15,3 +15,8 @@ https://www.google.com/url?sa=i&url=https%3A%2F%2Ffreepikpsd.com%2Fchain-vector-
 https://www.google.com/url?sa=i&url=https%3A%2F%2Ffreepikpsd.com%2Fgear-vector-png-transparent-images-3%2F306803%2F&psig=AOvVaw2ElH097HYaOVH1RJoGIamt&ust=1649793447449000&source=images&cd=vfe&ved=0CAcQjRxqFwoTCID73dbljPcCFQAAAAAdAAAAABAn
 
 https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.flaticon.com%2Ffree-icon%2Fpencil-and-ruler-crossed_80666&psig=AOvVaw3_LAGb2nN2RsJ2C9OM112A&ust=1649793504447000&source=images&cd=vfe&ved=0CAcQjRxqFwoTCKDPpfHljPcCFQAAAAAdAAAAABAU
+
+sources credits:
+https://www.torque.com.sg/reviews/honda-cb190r-review/
+
+https://www.mototechindia.com/honda-cb190r/
